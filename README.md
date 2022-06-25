@@ -5,6 +5,7 @@ Everything I dream about
 
 ## Подарки
 
+* [Часы](https://www.garmin.ru/watches/catalog/lily/lily-cream-gold-black-leather/) 
 * Серьги, кулон, кольцо- розовый кварц, серебро/белое золото
 * Верховая езда
 * Вокал
