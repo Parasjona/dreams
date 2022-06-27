@@ -7,6 +7,7 @@ Everything I dream about
 
 * [Часы](https://www.garmin.ru/watches/catalog/lily/lily-cream-gold-black-leather/) 
 * Серьги, кулон, кольцо- розовый кварц, серебро/белое золото
+* Диадема, корона
 * Столик для ванной
 * Верховая езда
 * Вокал
@@ -17,7 +18,7 @@ Everything I dream about
 * Сертификаты в Леруа Мерлен, Максидом и т.п.
 * Спа, массаж
 * Аквапарк
-* Паззлы UniDragon (самого большого размера)
+* Паззлы UniDragon (самого большого размера), особенно [Мандала Всеобъемлющих Противоположностей](https://unidragon.ru/mandala-vseoblemlyuschih-protivopolozhnostej), [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya)
 * Поиски планеты Х (настольная игра)
 * Большой термос (стекло изнутри)
 * Чайник (электрический, стекло, с возможностью выбора температуры и с функцией подогрева)
