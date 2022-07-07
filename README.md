@@ -28,6 +28,7 @@ Everything I dream about
 * Электрогриль
 * [Винница на 2-4 бокала](https://www.instagram.com/creed.wood/)
 * Беспроводная клавиатура для ТВ
+* [Сухоцветы](https://amsterdamflowers.ru/category-flowers/dried-flowers/) 
 
 ## Вино
 
