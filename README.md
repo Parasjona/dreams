@@ -5,7 +5,7 @@ Everything I dream about
 
 ## Подарки
 
-* [Часы](https://www.garmin.ru/watches/catalog/lily/lily-cream-gold-black-leather/) 
+* ~~[Часы](https://www.garmin.ru/watches/catalog/lily/lily-cream-gold-black-leather/)~~ - :heavy_check_mark: _09.07.2022_
 * Серьги, кулон, кольцо- розовый кварц, серебро/белое золото
 * Диадема, корона
 * Столик для ванной
