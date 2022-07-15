@@ -5,6 +5,7 @@ Everything I dream about
 
 ## Подарки
 
+* [Подставка для ноутбука](https://www.ozon.ru/product/podstavka-dlya-noutbuka-v-krovat-iz-bambuka-stolik-dlya-noutbuka-podstavka-pod-noutbuk-stol-dlya-298990719/?from=share_android&sh=7cp4ucsVMw)
 * Серьги, кулон, кольцо - розовый кварц, серебро/белое золото
 * Диадема, корона
 * Столик для ванной
