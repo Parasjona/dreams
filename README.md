@@ -7,7 +7,6 @@ Everything I dream about
 
 * Серьги, кулон, кольцо - розовый кварц, серебро/белое золото
 * Диадема, корона
-* Столик для ванной
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
 * Верховая езда
 * Вокал
