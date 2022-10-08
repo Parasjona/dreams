@@ -22,6 +22,7 @@ Everything I dream about
 * Аквапарк
 * Паззлы UniDragon (самого большого размера), особенно [Мандала Всеобъемлющих Противоположностей](https://unidragon.ru/mandala-vseoblemlyuschih-protivopolozhnostej), [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya)
 * Поиски планеты Х (настольная игра)
+* [Всмортить все](https://hobbygames.ru/rik-i-morti-vsmortit-vsjo) 
 * Большой термос (стекло изнутри)
 * Чайник (электрический, стекло, с возможностью выбора температуры и с функцией подогрева)
 * iPhone
