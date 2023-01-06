@@ -5,7 +5,7 @@ Everything I dream about
 
 ## Подарки
 
-* Серьги, кулон, кольцо - розовый кварц, серебро/белое золото
+* Серьги, кулон, кольцо - белое золото, бриллианты
 * Диадема, корона
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
 * [Постельное белье Natura, размер Евро](https://cozyhome.ru/product/natura_20220708113311_izumrudnyy?yclid=4697475519122302443#offer_117167)
