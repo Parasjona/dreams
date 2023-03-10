@@ -44,7 +44,6 @@ Everything I dream about
   * Белое: Chardonnay
 
 * Игристые
-  * Сладкие: mondoro asti
   * Брют
 
 * Cinzano - НЕТ
