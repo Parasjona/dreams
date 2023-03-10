@@ -20,7 +20,10 @@ Everything I dream about
 * Сертификаты в Леруа Мерлен, Максидом и т.п.
 * Спа, массаж
 * Аквапарк
-* Паззлы UniDragon (самого большого размера), особенно [Мандала Всеобъемлющих Противоположностей](https://unidragon.ru/mandala-vseoblemlyuschih-protivopolozhnostej), [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya), [Мандала Древо Жизни](https://unidragon.ru/mandala-drevo-zhizni?utm_source=sendpulse&utm_medium=email&utm_campaign=ot_mishi_n03)
+* Паззлы UniDragon (самого большого размера), особенно:
+    * [Мандала Всеобъемлющих Противоположностей](https://unidragon.ru/mandala-vseoblemlyuschih-protivopolozhnostej), 
+    * [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya), 
+    * [Мандала Осознанной Любви](https://unidragon.ru/mandala-osoznannoj-lyubvi)
 * Поиски планеты Х (настольная игра)
 * [Всмортить все](https://hobbygames.ru/rik-i-morti-vsmortit-vsjo) 
 * Большой термос (стекло изнутри)
