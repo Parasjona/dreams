@@ -5,7 +5,7 @@ Everything I dream about
 
 ## Подарки
 
-* [Кардхолдер](https://www.dudu-store.ru/catalog/svalbard/696-492-ballerina)
+* [Кардхолдер DuDu Svalbard ballerina](https://www.dudu-store.ru/catalog/svalbard/696-492-ballerina)
 * Серьги, кулон, кольцо - белое золото, бриллианты
 * Диадема, корона
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
