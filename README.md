@@ -38,6 +38,7 @@ Everything I dream about
 
 ## Вино
 
+* Care Tinto Sobre Lias Carinena
 * Carro 2014
 * Сортовое (защищенного географического наименования) сухое
   * Красное: Merlot, Shiraz/Syrah
