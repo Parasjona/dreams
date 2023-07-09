@@ -11,7 +11,6 @@ Everything I dream about
 * Сертификаты в РивГош, Л'Этауль и т.п.
 * Паззлы UniDragon (самого большого размера), особенно:
     * [Мандала Осознанной Любви](https://unidragon.ru/mandala-osoznannoj-lyubvi), 
-    * [Мандала Всеобъемлющих Противоположностей](https://unidragon.ru/mandala-vseoblemlyuschih-protivopolozhnostej), 
     * [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya)
 * Диадема, корона
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
