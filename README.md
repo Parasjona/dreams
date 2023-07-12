@@ -15,8 +15,8 @@ Everything I dream about
 * Диадема, корона
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
 * Постельное белье (простынь 260×260, пододеяльник 200×200, наволочки 50×70)
-* [Сумочка](https://baggins.ru/product/sumka-zhenskaya-protege-ds-340-257-print-3-zefir/)
-* [Утяжеленное одеяло](https://www.ozon.ru/products/470134570/?sh=7cp4ubsa4A&from=share_android)
+* [Сумка женская Protege, ДС-340-257 "Принт №3" зефир](https://baggins.ru/product/sumka-zhenskaya-protege-ds-340-257-print-3-zefir/)
+* Утяжеленное одеяло
 * [Паровая система](https://shop.tefal.ru/product/utjugi-i-parogeneratory/parovaja-sistema/parovaja-ustanovka-tefal-care-you-yt3040e1?yclid=5905231209472256413&utm_source=Yandex&utm_medium=cpc&utm_campaign=1OqdTX_RU_TEF_NSP_.NSF_.NSSFP_PU_DISP_STATIC_76409277&utm_content=RSYA_Targeting_LALVisitors_SmartBanners_5127815__All_All_All_N%2FA_N%2FA_AllRussia_LC_AlwaysOn_Steamsystem_COOPFIM_N%2FA&utm_term=12433021560)
 * Верховая езда
 * Вокал
@@ -29,8 +29,7 @@ Everything I dream about
 * Большой термос 1,5-2л (стекло изнутри)
 * Чайник (электрический, стекло, с возможностью выбора температуры и с функцией подогрева)
 * Телефон
-* [Фотоэпилятор](https://www.philips.ru/c-m-pe/hair-removal/lumea-ipl)
-* Водонепроницаемые наушники для плавания
+* Фотоэпилятор
 * Электрогриль
 * [Винница на 2-4 бокала](https://www.instagram.com/creed.wood/)
 * Беспроводная клавиатура для ТВ
@@ -45,7 +44,8 @@ Everything I dream about
   * Белое: Chardonnay
 
 * Игристые
-  * Брют
+  * Brut
+  * Brut nature/brut zero
 
 * Cinzano - НЕТ
 
@@ -101,6 +101,7 @@ Everything I dream about
 * Разная кухня
   * 41 этаж
   * Cristal
+  * Grebeshki
 * Японская кухня
   * КИDO, ТокиоСити
 * Итальянские
