@@ -6,6 +6,7 @@ Everything I dream about
 ## Подарки
 
 * Серьги, кулон, кольцо - белое золото, бриллианты
+* [Термопот](https://market.yandex.ru/product--termopot-viomi-viomi-smart-water-heater/444808793?sku=100645375221&offerid=Vht8xdyA_FpqQ2O5sEL-uw&hid=90586&nid=54967)
 * Спа, массаж
 * Парфюм
 * Сертификаты в РивГош, Л'Этауль и т.п.
