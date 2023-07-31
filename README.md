@@ -8,6 +8,7 @@ Everything I dream about
 * Серьги, кулон, кольцо - белое золото, бриллианты
 * Спа, массаж
 * Парфюм
+* [Сухоцветы](https://amsterdamflowers.ru/category-flowers/dried-flowers/) 
 * Сертификаты в РивГош, Л'Этауль и т.п.
 * Паззлы UniDragon (самого большого размера), особенно:
     * [Мандала Осознанной Любви](https://unidragon.ru/mandala-osoznannoj-lyubvi), 
@@ -26,13 +27,11 @@ Everything I dream about
 * Поиски планеты Х (настольная игра)
 * [Всмортить все](https://hobbygames.ru/rik-i-morti-vsmortit-vsjo) 
 * Большой термос 1,5-2л (стекло изнутри)
-* Чайник (электрический, стекло, с возможностью выбора температуры и с функцией подогрева)
 * Телефон
 * Фотоэпилятор
 * Электрогриль
 * [Винница на 2-4 бокала](https://www.instagram.com/creed.wood/)
 * Беспроводная клавиатура для ТВ
-* [Сухоцветы](https://amsterdamflowers.ru/category-flowers/dried-flowers/) 
 
 ## Вино
 
@@ -107,5 +106,6 @@ Everything I dream about
   * BONA CAPONA
   * Марчеллиз
   * Мама Рома
+  * Caffe Italia (пр.Бакунина 5)
 * Китайские
   * Тан Жен на ул.лени голикова
