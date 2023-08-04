@@ -13,7 +13,7 @@ Everything I dream about
 * Паззлы UniDragon (самого большого размера), особенно:
     * [Мандала Осознанной Любви](https://unidragon.ru/mandala-osoznannoj-lyubvi), 
     * [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya)
-* Диадема, корона
+* Диадема, корона, [например](https://www.alltime.ru/jewellary/sokolov/94250022_s/475731/)
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
 * Постельное белье (простынь 260×260, пододеяльник 200×200, наволочки 50×70)
 * Утяжеленное одеяло
