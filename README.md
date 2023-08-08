@@ -6,6 +6,7 @@ Everything I dream about
 ## Подарки
 
 * Серьги, кулон, кольцо - белое золото, бриллианты
+* Кольцо с сапфиром, 17/17,5: [такое](https://www.alltime.ru/jewellary/platina-kostroma/01-0219-00-105-1120-30/609302/) или [такое](https://market.yandex.ru/product--platina-jewelry-zolotoe-koltso-s-brilliantami-i-sapfirom-01-0254-00-105-1120-30/1811568209?sku=101921171179&offerid=GPNCBudF_K0Ai8ncZbyopQ&hid=91274&nid=18057672)
 * Спа, массаж
 * Парфюм
 * [Сухоцветы](https://amsterdamflowers.ru/category-flowers/dried-flowers/) 
