@@ -7,6 +7,7 @@ Everything I dream about
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
 * [ПЛАТЬЕ BRYONY ROSALIA, M](https://ru.revolve.com/allsaints-bryony-rosalia-dress-in-sunrise-blue/dp/ALLR-WD141/?d=Womens&vn=true&page=1&lc=16&itrownum=4&itcurrpage=1&itview=05)
 * [ПЛАТЬЕ ASTRID, M](https://ru.revolve.com/r/DisplayProduct.jsp?aliasURL=elliatt-astrid-dress-in-multi/dp/ELLI-WD344&d=Womens&sectionURL=undefined&srcType=dp_recs_expanded&product=ELLI-WD344&_idB_=MkE5cDd1T1RlanJKamUyUzJVRmhiR0Q3WTlXZUFy)
+*[Костюм, 46 размер, розовый](https://ozon.ru/t/nLjD0GV)
 * Серьги, кулон, кольцо - белое золото, бриллианты
 * [Браслет](https://epldiamond.ru/product/braslet-iz-belogo-zolota-585-s-brilliantami-e0901br07153200/?4380791)
 * Кольцо с сапфиром, 17/17,5: [такое](https://www.alltime.ru/jewellary/platina-kostroma/01-0219-00-105-1120-30/609302/) или [такое](https://market.yandex.ru/product--platina-jewelry-zolotoe-koltso-s-brilliantami-i-sapfirom-01-0254-00-105-1120-30/1811568209?sku=101921171179&offerid=GPNCBudF_K0Ai8ncZbyopQ&hid=91274&nid=18057672)
