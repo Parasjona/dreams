@@ -4,6 +4,7 @@ Everything I dream about
 # 09.07.1987
 
 ## Подарки
+* [Рюкзак](https://smartrichbitch.ru/collection/badass/product/ryukzak-s-zaklepkami-molochnyy-2-2)
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
 * [ПЛАТЬЕ BRYONY ROSALIA, M](https://ru.revolve.com/allsaints-bryony-rosalia-dress-in-sunrise-blue/dp/ALLR-WD141/?d=Womens&vn=true&page=1&lc=16&itrownum=4&itcurrpage=1&itview=05)
 * [ПЛАТЬЕ ASTRID, M](https://ru.revolve.com/r/DisplayProduct.jsp?aliasURL=elliatt-astrid-dress-in-multi/dp/ELLI-WD344&d=Womens&sectionURL=undefined&srcType=dp_recs_expanded&product=ELLI-WD344&_idB_=MkE5cDd1T1RlanJKamUyUzJVRmhiR0Q3WTlXZUFy)
