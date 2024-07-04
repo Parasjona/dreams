@@ -4,8 +4,9 @@ Everything I dream about
 # 09.07.1987
 
 ## Подарки
+* [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
 * [Рюкзак Ральф Рингер](https://ralf.ru/catalog/augz045300/)
-* [Рюкзак Arny Praht](https://arnypraht.com/category/backpacks/vendi-s-molochnyij/)
+* [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
 * [Рюкзак SRB](https://smartrichbitch.ru/collection/badass/product/ryukzak-s-zaklepkami-molochnyy-2-2)
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
 * [ПЛАТЬЕ BRYONY ROSALIA, M](https://ru.revolve.com/allsaints-bryony-rosalia-dress-in-sunrise-blue/dp/ALLR-WD141/?d=Womens&vn=true&page=1&lc=16&itrownum=4&itcurrpage=1&itview=05)
