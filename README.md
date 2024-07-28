@@ -5,7 +5,6 @@ Everything I dream about
 
 ## Подарки
 * [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
-* [Рюкзак Ральф Рингер](https://ralf.ru/catalog/augz045300/)
 * [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
 * [Рюкзак SRB](https://smartrichbitch.ru/collection/badass/product/ryukzak-s-zaklepkami-molochnyy-2-2)
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
