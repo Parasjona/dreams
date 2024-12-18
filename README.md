@@ -6,6 +6,8 @@ Everything I dream about
 ## Подарки
 * [Пальто, размер S](https://selfmade.ru/product/palto-na-zapah-2)
 * Набор полотенец для ванной (максимальной плотности, 600), [например](https://www.kuchenland.ru/catalog/vannaya/prinadlezhnosti-dlya-vannoy-komnaty/polotentsa-dlya-vannoy/komplekty-polotenets/komplekt-polotenets-50kh90-70kh140-sm-4-sht-khlopok-temno-seryy-rozovyy-terry-cotton/)
+* Оверлок
+* Утюг
 * [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
 * [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
 * [Юбка, размер S](https://selfmade.ru/product/yubka-maksi-iz-payetok-e66270)
