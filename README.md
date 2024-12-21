@@ -4,12 +4,14 @@ Everything I dream about
 # 09.07.1987
 
 ## Подарки
-* [Пальто, размер S](https://selfmade.ru/product/palto-na-zapah-2)
-* Набор полотенец для ванной (максимальной плотности, 600), [например](https://www.kuchenland.ru/catalog/vannaya/prinadlezhnosti-dlya-vannoy-komnaty/polotentsa-dlya-vannoy/komplekty-polotenets/komplekt-polotenets-50kh90-70kh140-sm-4-sht-khlopok-temno-seryy-rozovyy-terry-cotton/)
 * [Оверлок](https://nit.spb.ru/catalog/bytovye_overloki_i_rasposhivalnye_mashiny_1/overloki_i_rasposhivalnye_mashiny_jaguar_2/overlok_jaguar_880d/)
+* [Столовые приборы](https://www.kuchenland.ru/catalog/stolovaya/servirovka-stola/stolovye-pribory/nabory-stolovykh-priborov/stolovye-pribory-6-pers-24-pr-stal-toscana/)
+* [Набор для ванной](https://ozon.ru/t/0BQYDV)
+* Набор полотенец для ванной (максимальной плотности, 600), [например](https://www.kuchenland.ru/catalog/vannaya/prinadlezhnosti-dlya-vannoy-komnaty/polotentsa-dlya-vannoy/komplekty-polotenets/komplekt-polotenets-50kh90-70kh140-sm-4-sht-khlopok-temno-seryy-rozovyy-terry-cotton/)
 * Утюг
 * [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
 * [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
+* [Пальто, размер S](https://selfmade.ru/product/palto-na-zapah-2)
 * [Юбка, размер S](https://selfmade.ru/product/yubka-maksi-iz-payetok-e66270)
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
 * [ПЛАТЬЕ BRYONY ROSALIA, M](https://ru.revolve.com/allsaints-bryony-rosalia-dress-in-sunrise-blue/dp/ALLR-WD141/?d=Womens&vn=true&page=1&lc=16&itrownum=4&itcurrpage=1&itview=05)
