@@ -9,7 +9,7 @@ Everything I dream about
 * [Набор для ванной](https://ozon.ru/t/0BQYDV)
 * Набор полотенец для ванной (максимальной плотности, 600), [например](https://www.kuchenland.ru/catalog/vannaya/prinadlezhnosti-dlya-vannoy-komnaty/polotentsa-dlya-vannoy/komplekty-polotenets/komplekt-polotenets-50kh90-70kh140-sm-4-sht-khlopok-temno-seryy-rozovyy-terry-cotton/)
 * Утюг
-* [Кружка](https://www.kuchenland.ru/catalog/novyy-god/prazdnichnyy-stol/kruzhki-i-chayniki/kruzhka-270-ml-steklo-b-s-serebristymi-kristallami-vnutri-air-decor/)
+* [Кружка](https://www.kuchenland.ru/catalog/stolovaya/chay-i-kofe/kruzhki/kruzhka-270-ml-steklo-b-s-serebristymi-kristallami-vnutri-air-decor/)
 * [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
 * [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
 * [Пальто, размер S](https://selfmade.ru/product/palto-na-zapah-2)
