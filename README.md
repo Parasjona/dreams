@@ -22,8 +22,7 @@ Everything I dream about
 * [Сухоцветы](https://amsterdamflowers.ru/category-flowers/dried-flowers/) 
 * Сертификаты в РивГош, Л'Этуаль, Золотое яблоко и т.п.
 * Паззлы UniDragon (самого большого размера), особенно:
-    * [Мандала Осознанной Любви](https://unidragon.ru/mandala-osoznannoj-lyubvi), 
-    * [Мандала Спирального Воплощения](https://unidragon.ru/mandala-spiralnogo-voploscheniya)
+    * [Мандала Осознанной Любви](https://unidragon.ru/mandala-osoznannoj-lyubvi)
 * Диадема, корона, [например](https://www.alltime.ru/jewellary/sokolov/94250022_s/475731/)
 * Раскраски: [дельфин](https://деревянныепазлы.рф/derevyannaya-raskraska-molodoi-delfin), [сова](https://деревянныепазлы.рф/derevyannaya-raskraska-nochnaya-sova)
 * Утяжеленное одеяло
