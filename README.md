@@ -5,6 +5,7 @@ Everything I dream about
 
 ## Подарки
 * [Оверлок](https://nit.spb.ru/catalog/bytovye_overloki_i_rasposhivalnye_mashiny_1/overloki_i_rasposhivalnye_mashiny_jaguar_2/overlok_jaguar_880d/)
+* [Ваза](https://ozon.ru/t/WaRevNp)
 * [Столовые приборы](https://www.kuchenland.ru/catalog/stolovaya/servirovka-stola/stolovye-pribory/nabory-stolovykh-priborov/stolovye-pribory-6-pers-24-pr-stal-toscana/)
 * [Боди, серый, S](https://www.intimissimi.com/ru/product/%D0%B1%D0%BE%D0%B4%D0%B8-%D0%BB%D0%BE%D0%BD%D0%B3%D1%81%D0%BB%D0%B8%D0%B2_%D0%B8%D0%B7_%D0%BB%D0%B0%D0%BC%D0%B5_after_midnight-BO2554B.html?dwvar_BO2554B_Z_COL_INT=139J)
 * [Кружка kuchenland с серебристыми кристаллами внутри, Air decor](https://www.kuchenland.ru/catalog/novyy-god/prazdnichnyy-stol/kruzhki-i-chayniki/kruzhka-270-ml-steklo-b-s-serebristymi-kristallami-vnutri-air-decor/)
