@@ -4,6 +4,7 @@ Everything I dream about
 # 09.07.1987
 
 ## Подарки
+* Смартфон Huawei Pura X ❤
 * [Оверлок](https://nit.spb.ru/catalog/bytovye_overloki_i_rasposhivalnye_mashiny_1/overloki_i_rasposhivalnye_mashiny_jaguar_2/overlok_jaguar_880d/)
 * [Ваза](https://ozon.ru/t/WaRevNp)
 * [Столовые приборы](https://www.kuchenland.ru/catalog/stolovaya/servirovka-stola/stolovye-pribory/nabory-stolovykh-priborov/stolovye-pribory-6-pers-24-pr-stal-toscana/)
@@ -36,7 +37,6 @@ Everything I dream about
 * Аквапарк
 * Поиски планеты Х (настольная игра)
 * Большой термос 1,5-2л (стекло изнутри)
-* Телефон
 * Фотоэпилятор
 * Электрогриль
 * [Винница на 2-4 бокала](https://www.instagram.com/creed.wood/)
