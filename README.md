@@ -4,10 +4,8 @@ Everything I dream about
 # 09.07.1987
 
 ## Подарки
-* [MacBook](https://spb.unit-store.com/catalog/apple/mac/macbook-air-m4-2025/macbook-air-13-m4/apple-macbook-air-13-m4-24-gb-512-gb-ssd-nebesno-goluboy-mc6v4/)
+
 * [Ваза](https://ozon.ru/t/WaRevNp)
-* [Столовые приборы](https://www.kuchenland.ru/catalog/stolovaya/servirovka-stola/stolovye-pribory/nabory-stolovykh-priborov/stolovye-pribory-6-pers-24-pr-stal-toscana/)
-* [Кружка kuchenland с серебристыми кристаллами внутри, Air decor](https://www.kuchenland.ru/catalog/novyy-god/prazdnichnyy-stol/kruzhki-i-chayniki/kruzhka-270-ml-steklo-b-s-serebristymi-kristallami-vnutri-air-decor/)
 * [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
 * [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
 * [Пальто, размер S](https://selfmade.ru/product/palto-na-zapah-2)
