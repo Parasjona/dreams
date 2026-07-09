@@ -8,6 +8,8 @@ Everything I dream about
 * [Полотенце для волос](https://ayris-silk.ru/catalog/sets/set-turban-towel-face-towel-with-hyaluronic-acid?mod=lavanda)
 * [Шапочка для сна](https://ayris-silk.ru/catalog/hair-accessories/turbans/shyolkovyj-tyurban?mod=deep-black)
 * [Повязка](https://ayris-silk.ru/catalog/hair-accessories/dressings/shyolkovaya-povyazka-bando?mod=deep-black)
+* [Яйцеварка](https://ozon.ru/t/7WhqHFR)
+* [Яйцеварка](https://ozon.ru/t/MtDFAPY)
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
 * Серьги, кулон, кольцо, браслет - белое золото, бриллианты
 * Спа, массаж
