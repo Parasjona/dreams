@@ -5,14 +5,10 @@ Everything I dream about
 
 ## Подарки
 
-* [Ваза](https://ozon.ru/t/WaRevNp)
-* [Сумка Lancaster](https://www.noone.ru/product/sumka-1784404/)
-* [Рюкзак Arny Praht](https://arnypraht.com/tovar/ryukzak-zhenskij-vendi-s-chernyj/)
-* [Пальто, размер S](https://selfmade.ru/product/palto-na-zapah-2)
-* [Юбка, размер S](https://selfmade.ru/product/yubka-maksi-iz-payetok-e66270)
+* [Полотенце для волос](https://ayris-silk.ru/catalog/sets/set-turban-towel-face-towel-with-hyaluronic-acid?mod=lavanda)
+* [Шапочка для сна](https://ayris-silk.ru/catalog/hair-accessories/turbans/shyolkovyj-tyurban?mod=deep-black)
+* [Повязка](https://ayris-silk.ru/catalog/hair-accessories/dressings/shyolkovaya-povyazka-bando?mod=deep-black)
 * [Платье в полоску, M-L](https://www.asos.com/na-kd/na-kd-fine-knit-high-neck-maxi-dress-in-black-and-white-stripe/prd/206184712?ctaref=we+recommend+carousel_15&featureref1=we+recommend+pers)
-* [ПЛАТЬЕ BRYONY ROSALIA, M](https://ru.revolve.com/allsaints-bryony-rosalia-dress-in-sunrise-blue/dp/ALLR-WD141/?d=Womens&vn=true&page=1&lc=16&itrownum=4&itcurrpage=1&itview=05)
-* [ПЛАТЬЕ ASTRID, M](https://ru.revolve.com/r/DisplayProduct.jsp?aliasURL=elliatt-astrid-dress-in-multi/dp/ELLI-WD344&d=Womens&sectionURL=undefined&srcType=dp_recs_expanded&product=ELLI-WD344&_idB_=MkE5cDd1T1RlanJKamUyUzJVRmhiR0Q3WTlXZUFy)
 * Серьги, кулон, кольцо, браслет - белое золото, бриллианты
 * Спа, массаж
 * Парфюм
